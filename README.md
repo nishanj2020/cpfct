@@ -2,16 +2,8 @@
 Citizens Policy Forum of CT
 
 
+Website Coming Soon - 5/31/2024 
+Updated by NA
 
-# Education
-
-### Harvard Business School Executive Education
-Women on Boards: Succeeding as a Corporate Director
-
-### Yale School of Management
-MBA, Finance & Operations
-
-### Rutgers University
-B.S., Chemical Engineering & Mathematics
 
 
