@@ -2,4 +2,4 @@
 
 
 ### Mission
-Inform CT citizens about public policy by researching and communicating its impact. 
+Inform CT citizens about public policy.
